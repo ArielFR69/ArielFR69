@@ -1,4 +1,4 @@
 - Hello! ArielFR here
-- i do stupid stuff on music as well on software development
+- i do stupid stuff on music as well as software development
 - arielfikrir@gmail.com for reaching me or twitter
 - https://twitter.com/NxTunes
